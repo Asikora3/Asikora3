@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Asikora3, currently a Research Assistant at DePaul's Center for Community Research working on the Oxford Project Team under the direction of Dr. Leonard A. Jason. 
+- 👀 I’m interested in Community Psychology, Substance Use Disorder, Devolopmental Psychology, Positive Psychology and the Mind-Body connection.
+- 📫 Reach me @ Asikora3@depaul.edu
